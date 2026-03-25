@@ -10,8 +10,4 @@
 반갑습니다
 임현수
 ㅋㅋㅋ
-ㅋㄹㅈㅈㅁㅈㄹㅈ
-
-123
-ffefeefefchchchch
-hkhjjhj
+ㅋㄹㅈㅈㅁㅈaddkdkdkdkd
